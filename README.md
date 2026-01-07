@@ -82,4 +82,4 @@ Feel free to reach out via email or LinkedIn — I love collaborating on innovat
 ---
 
 **Thanks for visiting!**  
-Made with 💙 & lots of coffee ☕
+Made with 💙 & lots of tea ☕
